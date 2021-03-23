@@ -1,1 +1,1 @@
-# z-p-z-p-game
+# zıp-zıp-game
